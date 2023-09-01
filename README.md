@@ -23,6 +23,7 @@ Feel free to get in touch with me for further discussions or collaborations!
 
 ---
 
+# My CV (https://github.com/Anna300303/CV/blob/main/CV.pdf)
 
 How to contact me:
 - Email: 📩 [ania300303@gmail.com](mailto:ania300303@gmail.com)
